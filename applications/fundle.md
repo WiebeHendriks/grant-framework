@@ -153,7 +153,7 @@ https://www.linkedin.com/in/niels-snakenborg-05a07661/
 
 **Robin Starink**
 
-Role: Marketing & Sales
+Role: Sales
 
 An enthusiastic person who derives satisfaction from giving presentations and making deals. Currently studying sales and marketing at Avans university. Believes in Fundle because of the disruptive vision and the combination of people and innovative technology at its core. Working at marketing and sales within Fundle.
 
